@@ -1,3 +1,4 @@
+TODAY IS A GOOD DAY
 # sample1
 
 
